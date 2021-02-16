@@ -1,6 +1,6 @@
 # Mis preguntas de investigación
 
-Mi familia de plantas asignada es: Fabaceae papilionoideae
+Mi familia de plantas asignada es: Urticaceae
 
 Elegí la siguiente combinación de temas/preguntas: ABCE
 
